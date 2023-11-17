@@ -15,4 +15,4 @@ CODESANDBOX
 ### Link do Projeto 👇
 [https://lnydyk.csb.app/](https://l4th3h.csb.app/)
 
-## Muito Obriagdo! Sugestões são bem vindas ❤️💻
+## Muito Obrigado! Sugestões são bem vindas ❤️💻
